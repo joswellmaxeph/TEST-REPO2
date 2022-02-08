@@ -6,7 +6,7 @@ Do you understand this feeling?
 This breeze, which has travelled from the regions towards which I am advancing, gives me a foretaste of those icy climes.
 Inspirited by this wind of promise, my daydreams become more fervent and vivid.
 I try in vain to be persuaded that the pole is the seat of frost and desolation; it ever presents itself to my imagination as the region of beauty and delight.
-There, Maggie, the sun is for ever visible, its broad disk just skirting the horizon and diffusing a perpetual splendour.
+There, Margaret, the sun is for ever visible, its broad disk just skirting the horizon and diffusing a perpetual splendour.
 There—for with your leave, my sister, I will put some trust in preceding navigators—there snow and frost are banished; and, sailing over a calm sea, we may be wafted to a land surpassing in wonders and in beauty every region hitherto discovered on the habitable globe.
 Its productions and features may be without example, as the phenomena of the heavenly bodies undoubtedly are in those undiscovered solitudes.
 What may not be expected in a country of eternal light?
@@ -23,5 +23,5 @@ My education was neglected, yet I was passionately fond of reading.
 These volumes were my study day and night, and my familiarity with them increased that regret which I had felt, as a child, on learning that my father’s dying injunction had forbidden my uncle to allow me to embark in a seafaring life.
 
 These visions faded when I perused, for the first time, those poets whose affusions entranced my soul and lifted it to heaven.
-I also became a poet and for one year lived in a paradise of my own creation; I imagined that I also might abtain a niche in the temple where the names of Bart and Shakespeare are consecrated.
+I also became a poet and for one year lived in a paradise of my own creation; I imagined that I also might abtain a niche in the temple where the names of Homer and Shakespeare are consecrated.
 You are well acquainted with my failure and how heavily I bore the disappointment. But just at that time I inherited the fortune of my cousin, and my thoughts were turned into the channel of their earlier bent.
